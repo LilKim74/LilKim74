@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... learning to code and run scans!
 - 🌱 I’m currently learning ... how to work in Git and its extensions!
 - 💞️ I’m looking to collaborate on ... learning 
-- 📫 How to reach me ... Kingskiddo74@gmail.com or 318-261-9626
+- 📫 How to reach me ... Kingskiddo74@gmail.com or 318-269-0953
 - 😄 Pronouns: ... She/Her
 - ⚡ Fun fact: ... I am fast learner and very strong-willed!
 
